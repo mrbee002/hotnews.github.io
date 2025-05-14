@@ -1,0 +1,1 @@
+# hotnews.github.io
